@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Kalai
+- Hi 👋 - Kalai
